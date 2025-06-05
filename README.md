@@ -11,3 +11,7 @@ BlissBloom is more than just a platform — it’s your personal guide to happin
 🧘‍♀️ Yoga & Mindfulness Practices to reconnect with yourself
 
 🍳 Therapeutic Cooking Ideas for comfort and creativity
+
+
+https://github.com/user-attachments/assets/13ad4411-ac1e-4572-9e5c-9de76b93d80f
+
